@@ -46,7 +46,7 @@ Rejoignez-nous pour partager vos idées et construire ensemble l’avenir de l�
 
 ## 📥 Télécharger
 
-Téléchargez gratuitement Talaxie depuis le site officiel :  
+Téléchargez gratuitement Talaxie depuis le site partenaire :  
 👉 [https://deilink.fr/#/download](https://deilink.fr/#/download)
 
 ---
